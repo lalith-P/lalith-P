@@ -12,5 +12,5 @@
 
 - 📫 How to reach me ...
 -   Mail: lalith.purushoth@gmail.com
--   Linkedin: linkedin.com/in/lalith-p-9718a0278
+-   Linkedin: https://www.linkedin.com/in/lalith-p-9718a0278
 
